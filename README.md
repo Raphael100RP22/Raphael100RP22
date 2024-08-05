@@ -6,4 +6,4 @@ Meu nome é Raphael
 estou estudandona alura
 ola eu estou estudando e intediado e estou estudando
 
-![](https://tenor.com/pt-BR/view/aplausos-clapped-leonardo-dicaprio-clap-slow-clap-gif-12389001)
+![](https://media1.tenor.com/m/BHEkb1EYsaMAAAAC/aplausos-clapped.gif)
